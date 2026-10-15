@@ -1,0 +1,1 @@
+This project includes links to official Medicare websites to ensure users have direct access to accurate, up‑to‑date information on benefits, coverage options, enrollment periods, and policy updates. These resources are maintained by government agencies and serve as authoritative references for anyone seeking reliable Medicare guidance.v
